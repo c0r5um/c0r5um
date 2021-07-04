@@ -1,7 +1,4 @@
-Hi, I’m @c0r5um, 
-
-Work repo mostly cats and code. (=`ェ´=)/\/
-
+Mostly cats and code. (=`ェ´=)/\/
 Be carfeful here be dragons around.
 
 
